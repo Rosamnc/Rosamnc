@@ -1,4 +1,4 @@
-- Hi, I’m @Rosamnc
+- Hi, I’m Rosa Maria Naranjo Corrales
 - My eager is to continue learning in the field of cibersecurity and project managing.
 - I’m currently studying information systems degree at upm. 
 - I’m looking to get a job position that allows me to grow both professionally and academically.
